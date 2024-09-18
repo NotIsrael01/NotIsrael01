@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do NotIsrael01 😁
+## Bem-vindo(a) ao perfil do Israel 😁
 
  <div>
    <a href="https://github.com/NotIsrael01">
